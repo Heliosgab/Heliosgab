@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning Data analysis
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Email:adedotunolayiwole1@gmail.com \ 09158882936(Whatsapp) 
-- 😄 Pronouns: Him
+- 😄 Pronouns: He
+- 
 - ⚡ Fun fact: I'm one of a kind
 
 
